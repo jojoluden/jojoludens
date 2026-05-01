@@ -1,4 +1,4 @@
 # jojoludens
 
-ich mache was mit dieser webseite irgenwann irgendwass
+ich mache was mit dieser webseite irgenwann irgendwas
 ganz bestimmt.
