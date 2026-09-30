@@ -3,4 +3,4 @@
 ich mache was mit dieser webseite irgenwann irgendwas
 ganz bestimmt.
 
-Checkt meine [Itch][https://jojoscript.itch.io/] seite aus!
+Checkt meine Itch seite aus! https://jojoscript.itch.io/
